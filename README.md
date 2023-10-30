@@ -9,8 +9,9 @@ Os Quarto de Milha são os mais rápidos do mundo em corridas de curtas distânc
 
 crioulo
 
+https://univitta.net/backend/web/uploads/blog/posts/crioulo_20201216111409.png
 
-image
+https://blogs.canalrural.com.br/blogdofreiodeouro/wp-content/uploads/sites/12/2014/05/16786109.jpg
 
 O cavalo Crioulo se originou a partir da combinação de duas raças espanhóis, que foram a Berbere e Andaluz, sendo que foi trazido ao Brasil pelo explorador Àlvar Núñes de Vaca, em meados de 1634. Desde lá, essa raça conseguiu ganhar facilmente os corações dos brasileiros. E, claro, motivos não faltam para esse animal ser tão popular.
 
